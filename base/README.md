@@ -1,1 +1,0 @@
-Ficheiros localizados no desktop
